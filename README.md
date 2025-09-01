@@ -28,3 +28,7 @@ If you’d like to collaborate or connect:
 - **GitHub:** [Your GitHub](https://github.com/your-username)  
 
 ---
+<img width="1920" height="1080" alt="Screenshot (1034)" src="https://github.com/user-attachments/assets/b95c708a-109f-4e86-924b-036c7a62918e" />
+<img width="1920" height="1080" alt="Screenshot (1035)" src="https://github.com/user-attachments/assets/d721179e-d2f6-4426-8687-03896cf30291" />
+
+
